@@ -1,0 +1,2 @@
+# answer
+all knowing
